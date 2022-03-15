@@ -1,6 +1,6 @@
 # MOTORCYCLE-BAGS![IMG_0479](https://user-images.githubusercontent.com/99157857/158445423-53d4070a-3d72-4888-a546-d44f8c6cb017.jpg)![IMG_0478](https://user-images.githubusercontent.com/99157857/158445426-1a33faf0-0096-4919-b210-c1408cd8c688.jpg)
 ![IMG_0477](https://user-images.githubusercontent.com/99157857/158445430-06677c62-7b41-41d7-a460-6f0669fbe933.jpg)
-![IMG_0476](https://user-images.githubusercontent.com/99157857/158445436-d3687978-f8db-4b58-8a83-1649a1082c00.jpg)
+
 ![IMG_0475](https://user-images.githubusercontent.com/99157857/158445438-bf0b8dde-9620-4080-bb2d-ab07fd27ade0.jpg)
 ![IMG_0474](https://user-images.githubusercontent.com/99157857/158445443-4ddf7f57-517d-4f15-afb3-81dc6433b833.jpg)
 ![IMG_0473](https://user-images.githubusercontent.com/99157857/158445448-872beb37-0a34-47a1-b5c5-a0719e353251.jpg)
